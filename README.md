@@ -27,6 +27,6 @@
 ![Untitled35_20240910183333](https://github.com/user-attachments/assets/dbbec5f5-6714-430f-ac15-e06ee188c9b0)
 ![Untitled35_20240910183254](https://github.com/user-attachments/assets/ef859387-782a-4d83-a85b-c3bb71472860)
 
-𝐢𝐦 𝐠𝐨𝐧𝐧𝐚 𝐥𝐨𝐬𝐞 𝐦𝐲 𝐦𝐢𝐧𝐝 𝐢𝐬𝐭𝐠
+you guys 𝐢𝐦 𝐠𝐨𝐧𝐧𝐚 𝐥𝐨𝐬𝐞 𝐦𝐲 𝐦𝐢𝐧𝐝 fr
 
 ![w4861w](https://github.com/user-attachments/assets/387ca8bf-3a81-4e19-a875-55463294cb36)
