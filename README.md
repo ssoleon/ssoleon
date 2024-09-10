@@ -31,3 +31,4 @@ you guys 𝐢𝐦 𝐠𝐨𝐧𝐧𝐚 𝐥𝐨𝐬𝐞 𝐦𝐲 𝐦𝐢𝐧�
 
 ![w4861w](https://github.com/user-attachments/assets/387ca8bf-3a81-4e19-a875-55463294cb36)
 ![Screenshot 2024-09-10 200619](https://github.com/user-attachments/assets/846c3cfd-7cc3-48e0-a230-bc1811a15b24)
+![Screenshot 2024-09-10 202723](https://github.com/user-attachments/assets/67cb0946-716c-45c5-aa08-79b95cb45164)
