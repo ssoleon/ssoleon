@@ -1,4 +1,4 @@
-![w4861w](https://github.com/user-attachments/assets/387ca8bf-3a81-4e19-a875-55463294cb36)
+![Untitled87_20240914230045](https://github.com/user-attachments/assets/5ea8e572-bfd1-422c-baa4-1dbc0c83401d)
 
 
 ![13fot8](https://github.com/user-attachments/assets/e2bd63ee-e49f-4b49-9471-fae57e74f0fa)
@@ -30,6 +30,6 @@
 
 you guys 𝐢𝐦 𝐠𝐨𝐧𝐧𝐚 𝐥𝐨𝐬𝐞 𝐦𝐲 𝐦𝐢𝐧𝐝 fr
 
-![w4861w](https://github.com/user-attachments/assets/387ca8bf-3a81-4e19-a875-55463294cb36)
+![Untitled87_20240914230045](https://github.com/user-attachments/assets/5ea8e572-bfd1-422c-baa4-1dbc0c83401d)
 ![Screenshot 2024-09-10 200619](https://github.com/user-attachments/assets/846c3cfd-7cc3-48e0-a230-bc1811a15b24)
 ![Screenshot 2024-09-10 202723](https://github.com/user-attachments/assets/67cb0946-716c-45c5-aa08-79b95cb45164)
