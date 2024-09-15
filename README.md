@@ -27,4 +27,4 @@
 ![Untitled87_20240915171144](https://github.com/user-attachments/assets/d93936d5-c0f6-4836-95fd-dba14bf60f58)
 ![箱外回音 _ 重返未来 1999](https://github.com/user-attachments/assets/fd2b4e04-10d1-474a-9222-54ebf3486914)
 
-guys thats me at the back 4 real
+guys look thats me at the back 4 real
