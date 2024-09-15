@@ -31,4 +31,6 @@
 you guys 𝐢𝐦 𝐠𝐨𝐧𝐧𝐚 𝐥𝐨𝐬𝐞 𝐦𝐲 𝐦𝐢𝐧𝐝 fr
 
 ![Untitled87_20240915171144](https://github.com/user-attachments/assets/d93936d5-c0f6-4836-95fd-dba14bf60f58)
-![Screenshot 2024-09-15 170135](https://github.com/user-attachments/assets/623fca2b-9814-4ae3-af2c-c41254db7621) ![Screenshot 2024-09-15 170311](https://github.com/user-attachments/assets/7a2cc46d-2d8f-4fae-b91e-73d4deab4b3f)
+![箱外回音 _ 重返未来 1999](https://github.com/user-attachments/assets/fd2b4e04-10d1-474a-9222-54ebf3486914)
+
+guys thats me at the back 4 real
