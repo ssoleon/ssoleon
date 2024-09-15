@@ -1,6 +1,4 @@
 ![Untitled87_20240915171144](https://github.com/user-attachments/assets/d93936d5-c0f6-4836-95fd-dba14bf60f58)
-
-
 ![13fot8](https://github.com/user-attachments/assets/e2bd63ee-e49f-4b49-9471-fae57e74f0fa)
 ![03lcs8](https://github.com/user-attachments/assets/13303b70-ef32-4970-97a4-a48b61a45121)
 ![i4l7s5](https://github.com/user-attachments/assets/46de4c28-1a95-4118-b393-730822f2e612)
@@ -9,7 +7,6 @@
 ![ah9ktj](https://github.com/user-attachments/assets/36db7c58-32a2-4229-8c20-8975dbb83c6c)
 ![IMG-4784](https://github.com/user-attachments/assets/16849790-dce7-462d-a7d8-c925a429f367)
 ![luh1kd](https://github.com/user-attachments/assets/709b4799-b327-4c6f-ad0f-45c40db5e42b)
-
 
 ![tumblr_0e17175b3f600eab664c0a66ea4d8793_bb73a82c_100 (1)](https://github.com/user-attachments/assets/d7eb47f5-6e90-4896-bc70-40a262de5b90)
 ![tumblr_85e3fceb479b5184d8e19f8edd72abcc_8bb5b6e3_100](https://github.com/user-attachments/assets/0067fcc1-540b-4d19-942e-330a38ebfd26)
@@ -27,9 +24,6 @@
 ![Untitled35_20240910182759](https://github.com/user-attachments/assets/1f389528-0674-4caf-9b01-0ad7387f1b89)
 ![Untitled35_20240910183333](https://github.com/user-attachments/assets/dbbec5f5-6714-430f-ac15-e06ee188c9b0)
 ![Untitled35_20240910183254](https://github.com/user-attachments/assets/ef859387-782a-4d83-a85b-c3bb71472860)
-
-you guys 𝐢𝐦 𝐠𝐨𝐧𝐧𝐚 𝐥𝐨𝐬𝐞 𝐦𝐲 𝐦𝐢𝐧𝐝 fr
-
 ![Untitled87_20240915171144](https://github.com/user-attachments/assets/d93936d5-c0f6-4836-95fd-dba14bf60f58)
 ![箱外回音 _ 重返未来 1999](https://github.com/user-attachments/assets/fd2b4e04-10d1-474a-9222-54ebf3486914)
 
