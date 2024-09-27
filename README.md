@@ -25,6 +25,4 @@
 ![Untitled35_20240910183333](https://github.com/user-attachments/assets/dbbec5f5-6714-430f-ac15-e06ee188c9b0)
 ![Untitled35_20240910183254](https://github.com/user-attachments/assets/ef859387-782a-4d83-a85b-c3bb71472860)
 ![Untitled87_20240915171144](https://github.com/user-attachments/assets/d93936d5-c0f6-4836-95fd-dba14bf60f58)
-![箱外回音 _ 重返未来 1999](https://github.com/user-attachments/assets/fd2b4e04-10d1-474a-9222-54ebf3486914)
 
-guys look thats me at the back 4 real
