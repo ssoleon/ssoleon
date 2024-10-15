@@ -31,4 +31,4 @@
 ![Untitled119_20241013222540](https://github.com/user-attachments/assets/f0fb8f80-3c02-4592-8ce6-046aacc5daae)
 
 ![Untitled79_20241012213339 (1)](https://github.com/user-attachments/assets/ddecc43d-ae83-4edb-bb71-e70deea3fc73)
-*[rentry](https://rentry.co/samexldstory)*  ||  *[you guys are wierd ://](https://rentry.co/iheartslander)*  || *[rs](https://retrospring.net/@soln)*
+*[rentry](https://rentry.co/samexldstory)*  ||  *[you guys are wierd ://](https://rentry.co/iheartslander)*  || *[sign](https://retrospring.net/@soln)* *[sign](https://soln.atabook.org/)
