@@ -1,7 +1,5 @@
 ![Untitled79_20241012213339 (1)](https://github.com/user-attachments/assets/ddecc43d-ae83-4edb-bb71-e70deea3fc73)
 
-![Untitled119_20241013222532](https://github.com/user-attachments/assets/add16d6c-a9f0-453e-b85a-1f86728c518d)
-
 ![13fot8](https://github.com/user-attachments/assets/e2bd63ee-e49f-4b49-9471-fae57e74f0fa)
 ![03lcs8](https://github.com/user-attachments/assets/13303b70-ef32-4970-97a4-a48b61a45121)
 ![i4l7s5](https://github.com/user-attachments/assets/46de4c28-1a95-4118-b393-730822f2e612)
@@ -27,8 +25,6 @@
 ![Untitled35_20240910182759](https://github.com/user-attachments/assets/1f389528-0674-4caf-9b01-0ad7387f1b89)
 ![Untitled35_20240910183333](https://github.com/user-attachments/assets/dbbec5f5-6714-430f-ac15-e06ee188c9b0)
 ![Untitled35_20240910183254](https://github.com/user-attachments/assets/ef859387-782a-4d83-a85b-c3bb71472860)
-
-![Untitled119_20241013222540](https://github.com/user-attachments/assets/f0fb8f80-3c02-4592-8ce6-046aacc5daae)
 
 ![Untitled79_20241012213339 (1)](https://github.com/user-attachments/assets/ddecc43d-ae83-4edb-bb71-e70deea3fc73)
 *[rentry](https://rentry.co/samexldstory)*  ||  *[you guys are wierd ://](https://rentry.co/iheartslander)*  || *[sign](https://retrospring.net/@soln)* 
