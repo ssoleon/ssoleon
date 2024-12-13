@@ -27,4 +27,4 @@
 ![Untitled35_20240910183254](https://github.com/user-attachments/assets/ef859387-782a-4d83-a85b-c3bb71472860)
 
 ![Untitled79_20241012213339 (1)](https://github.com/user-attachments/assets/ddecc43d-ae83-4edb-bb71-e70deea3fc73)
-*[rentry](https://rentry.org/petuiant)*  ||  *[you guys are wierd ://](https://rentry.co/iheartslander)*  || *[sign](https://retrospring.net/@soln)* 
+*[rentry](https://rentry.org/petuiant)*  ||  *[you guys are wierd ://](https://rentry.co/iheartslander)*  || 
